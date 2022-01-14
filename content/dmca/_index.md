@@ -26,7 +26,7 @@ Provide your full legal name and your electronic or physical signature.
 Deliver this Notice, with all items completed, to our Designated Copyright Agent:
 
 Copyright Agent
-www.eluxurysall.com DMCA Division
+https://arcelikglobal.web.app DMCA Division
 
 Counter Notices
 
